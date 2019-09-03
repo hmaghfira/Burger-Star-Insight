@@ -1,1 +1,5 @@
 # Burger-Star-Insight
+Team Doctrina Apparatus :
+1. ANDREAS MULYA RAHARDJA
+2. HANIA MAGHFIRA
+3. ZUMARSIYAH MAHSYARI
